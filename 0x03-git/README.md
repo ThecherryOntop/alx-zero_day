@@ -1,0 +1,1 @@
+I have fully started my journey to become a software engineer
